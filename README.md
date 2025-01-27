@@ -1,0 +1,1 @@
+# Sid Golf Cup Copy
